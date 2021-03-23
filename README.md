@@ -1,1 +1,1 @@
-# MasterChef-Junior
+The chocolate cake is one of the most classic desserts which is superior than any other dessert because of it's rich taste. The following ingredients and recipe are given for making a chocolate cake.
